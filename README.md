@@ -1,16 +1,27 @@
-## Hi there 👋
+↓↓↓最/新/观/看/入/口↓↓↓
 
-<!--
-**bxrtl/bxrtl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+http://www.baidu.com/link?url=XaDzi4lrlBsIf7hc43pQAeEvE68KnODCy8r9yapmf0G&wd
 
-Here are some ideas to get you started:
+儿按照自己的指示行事，又让他跟着自己走。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+沈桦大概在忙，前面两个电话打过去她都没接。
+
+沈林第三次打的时候通了。
+
+他开着免提，里面清晰地传出来了沈桦的声音，“怎么样了？死了吗？”
+
+喻清棠脸色一变，薄唇几乎抿成了一条直线，身上的气息也降到了冰点。
+
+哪怕不了解他的人也会被他此刻身上的凶煞之气吓到。
+
+更遑论差点被掐断脖子的沈林。
+
+他虽然害怕，但他还是幸灾乐祸地笑了一声，处于微薄的一点血缘亲情，他还特地在心底为沈桦点了一支蜡烛。
+
+“你笑什么呢？”沈桦问。
+
+沈林咳了一下，故意说：“表姐，你猜。”
+
+沈桦却冷嗤，“废话少一些，你只告诉我他死了没有就行。”
+http://www.6s8n.lol
+喻清棠手指握成了拳头。
